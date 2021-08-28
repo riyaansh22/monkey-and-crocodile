@@ -1,0 +1,3 @@
+Once upon a time, a clever monkey lived in a tree that bore juicy, red rose apples. He was very happy. One fine day, a crocodile swam up to that trees
+his is the Crocodile and Monkey Story. Once upon a time in a beautiful jungle, there was a lovely pond. In the pond, there lived a large ye
+Monkey And The Crocodile Story ... Once upon a time, a clever monkey lived on a berry tree, on the banks of a river.
